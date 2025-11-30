@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔎Finding friends creating Server Minecraft<br>📘I'm currently learning at CyberSoft Academy<br>🔞I'm borned in 2011<br>
+🔎Finding friends creating Server Minecraft<br>📘I'm currently learning at CyberSoft Academy,Vas<br>🔞I'm borned in 2011<br>
 
 
 ## 🌐 Socials:
